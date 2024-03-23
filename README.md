@@ -1,1 +1,0 @@
-# formulad1y
